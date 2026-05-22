@@ -1,1 +1,1 @@
-# https-gemini.google.com-share-3bab00f99540
+# httpsnitstudentportal
